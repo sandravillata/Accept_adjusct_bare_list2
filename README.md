@@ -1,0 +1,1 @@
+# Accept_adjusct_bare_list2
